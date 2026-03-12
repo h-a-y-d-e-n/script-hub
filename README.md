@@ -1,3 +1,3 @@
-uh what do i add here gng
+yo anyone whos actually here i lost accest tk the newest script, i might be able to recover it
 
-use my hub ig
+make an issue for recommendations
